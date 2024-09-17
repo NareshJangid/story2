@@ -1,1 +1,2 @@
-# story2
+jai jai ram jai siya ram. ram nam japne se hi ram nam japne se hi......
+ban jate sb bigde kaam. jai jai ram jai shree ram 2 akshar ka sara naam
